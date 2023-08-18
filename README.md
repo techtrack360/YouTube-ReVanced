@@ -11,3 +11,4 @@ If these links are NOT Working, leave a comment on my instagram video / DM me.
 - Then go for Vanced MicroG
 - Then Install ReVanced.
 - Now enjoy Ad free content on YouTube.
+- Don't forget to subscribe TechTracker on [Youtube](youtube.com/@techtracker360) & [Instagram](instagram.com/techtracker360).
